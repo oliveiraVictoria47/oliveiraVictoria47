@@ -1,6 +1,11 @@
-**Vicky**
+❇️**Vicky**
+❇️**15 years**
 
-- **estou estudando no alura**
-- **estou me desenvolvendo na linguagem Javascript**
-- **utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos**
+
+💠 I`m currently Learning Alura
+💠Pronouns: Ela/Ele
+💠How to reach me: 00001116931217sp@al.educacao.sp.gov.br
+
+
+
 
