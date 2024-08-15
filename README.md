@@ -9,7 +9,7 @@
 
 💠How to reach me: 00001116931217sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/stray-kids-stray-kids-han-han-jisung-han-bang-chan-gif-27619618)
+### ![](https://media1.tenor.com/m/dggl5K6OQQ0AAAAC/stray-kids-stray-kids-han.gif)
 
 
 
